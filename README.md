@@ -1,2 +1,4 @@
 # Saif-Telecommunications-Pte.-Ltd.
-Saif Telecommunications is a Singapore-based telecommunications provider with over 18 years of experience in delivering innovative telecommunications services with its registered office being in Singapore.
+Saif Telecommunications is one of the fastest-growing carriers in the International Voice/SMS Industry, focusing on Retail, Wholesale voice/SMS aggregation, and terminations.
+With more than 16 Years existence, Saif is able to build an excellent reputation in retail quality direct routes and partnerships with reputed incumbents in key regions across the globe. Saifcall terminates more than 3 Billion minutes annually. We have built capabilities in delivering the best quality Retail and Wholesale voice through 300+interconnects..
+Saif Telecommunications is a Singapore-based telecommunications provider with over 18 years of experience in delivering innovative telecommunications services with its registered office being in Singapore. Our primary focus lies in providing reliable, high-quality connectivity and exceptional customer service, enabling businesses and individuals to stay connected and excel in the digital era.
